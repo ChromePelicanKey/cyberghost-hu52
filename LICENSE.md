@@ -1,4 +1,4 @@
-
+Enhance your CyberGhost experience with high-speed App for CyberGhost - port-forwarding and L2TP-support, the #1 app. Includes port-forwarding and L2TP-support for a safer and
 
 
 
